@@ -1,0 +1,27 @@
+---
+author: Bắc Đằng
+categories:
+- Truyện Ngắn - Ngôn Tình
+description: Thiên Tài Nhi Tử Và Mẫu Thân Phúc Hắc
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/7273
+- info: mobi
+  url: https://sachvui.com/download/mobi/7274
+- info: pdf
+  url: https://sachvui.com/download/pdf/7275
+image: https://sachvui.com/cover/2019/thien-tai-nhi-tu-va-mau-than-phuc-hac.jpg
+layout: post
+permalink: /thien-tai-nhi-tu-va-mau-than-phuc-hac.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Thiên Tài Nhi Tử Và Mẫu Thân Phúc Hắc ebook
+- Thiên Tài Nhi Tử Và Mẫu Thân Phúc Hắc pdf
+thumbnail_url: https://sachvui.com/cover/2019/thien-tai-nhi-tu-va-mau-than-phuc-hac.jpg
+title: Thiên Tài Nhi Tử Và Mẫu Thân Phúc Hắc
+---
+
+ <div class="item-desc text-justify"> <p><strong>Thể loại:</strong> xuyên không, huyễn huyễn, sủng, hài <br><strong>Độ dài:</strong> 707 chính văn và 12 phiên ngoại <br><strong>Editor: </strong><br><strong>- Quyển 01:</strong> Hân Nghiên, Dung Nhi, Ngân Châu, Thanh Vân, Huyen Nghien<br><strong>- </strong><strong>Quyển 02: </strong>Huyền Nga, Ngân Châu, Tiểu Chi, Mjn Mjn, Nhozbo Kute, LVV, Sailormoon, Thu Hồng, Madoilinh<br><strong>- </strong><strong>Quyển 03:</strong> Ngân Châu, Tiểu Nguyệt Dương, LVV, Violetin_08, Thu Hồng, Phương Thúy, Tiểu Ngọc Nhi, Ngọc Nhi, Acmacanhtrang, Ngọc Nhân<br><strong>- </strong><strong>Quyển 04: </strong>Aquarius8713; Lisar1314, Ngân Châu, Phương Thúy, Socola_Nguyen, Tiểu Mộng, Anh Tú, Xuân Như, Tiểu Ngọc Nhi, Vân Anh, Tiểu Nguyệt Dương, Ngọc Nhi.<br><strong>- </strong><strong>Quyển 05: </strong>thuydung.saphia, Tiểu ngọc nhi, anh tu, ngân châu, Thu chang, Osicase, Vân anh, huong do, giọt sương đêm, tiểu nguyệt dương, minh thu, xuân như, phương thanh, phong anh, thùy dương, thu hương, tiểu miêu nữ, Pthu, trang phạm<br><strong>- </strong><strong>Quyển 06: </strong>thu huyền, bongtuyetlonelylovely, Osicase, Thùy Dương, Pthu, giọt sương đêm, tiểu nguyệt dương, xuân như<br><strong>- </strong><strong>Quyển 07: </strong>Osicase, giọt sương đêm, xuân như<br><strong>Beta:</strong> Tiểu Tuyền, Tiểu Chi, Serenite, Tiểu Mộng<br><br>Không ngờ nàng xuyên qua lại phát hiện bản thân mình đã có con và còn có một con thần thú vô địch.<br><br>Không vấn đề gì. Cuộc đời này đã bớt đi một công đoạn sinh con cũng không sao. Về phần cha đứa nhỏ là ai? quan hệ gì đến nàng chứ.<br><br>Mang theo đứa con lưu lạc giang hồ, đối mặt với tất cả những điều yêu ma quỷ quái, mẫu tử đồng lòng, gặp thần giết thần gặp phật giết phật.<br><br><strong>Đoạn ngắn.</strong><br><br>Tiểu Mặc: Mẫu thân, thúc thúc hư chặn đường cướp bóc, làm sao đây?<br><br>Vân Khê: Tự mình giải quyết lấy, chuyện nhỏ như vậy đừng làm phiền mẫu thân.<br><br>Tiểu Mặc: mẫu thân, vị thúc thúc này trông rất tuấn tú lại còn có tiền, ta có thể nhận hắn làm phụ thân không?<br><br>Vân Khê: Tuy nói hắn là quỷ đoản mệnh nhưng một ngày nào đó nhất định hai mẹ con ta sẽ nhận được toàn bộ tài sản của hắn.<br><br>Tiểu Mặc: mẫu thân, nam nhânnày  bộ dạng giống như ta, chẳng lẽ hắn là cha của ta?<br><br>Vân Khê: không cần nhận cha bậy! Vạn nhất hắn là cái kẻ nghèo hèn, ngươi phải nuôi hắn cả đời a?<br><br>Thần bí nam chủ: mở to hai mắt nhìn cho rõ ràng, bản tôn toàn thân cao thấp đều là hàng hiệu, còn có bảo kiếm trong tay ta là vật báu vô giá!<br><br>Một cuộc tân tú tranh giành thi đấu, vị nữ tử Vân Khê bị người phỉ nhổ đến chết đi sống lại bỗng phát ra hào quang kỳ dị, quần tinh ủng nguyệt, thành bánh trái thơm ngon, người tới cửa cầu hôn cơ hồ là muốn đạp phá cánh cửa mà vào.<br><br>Tiểu Mặc tay trái phe phẩy thẻ bài “Thông qua”, tay phải giơ lên thẻ bài “Đào thải”, vội đến không biết trời đất luôn.<br><br>“Không đứng ở trong bảng thiên hạ thập đại mĩ nam chi liệt, đào thải!”<br><br>“Đánh không lại ta cùng ta mẫu thân, đào thải!”<br><br>“Giá trị con người không có được trăm vạn hai hoàng kim, đào thải!”<br><br>“......”<br><br>Hừng hực khí thế khi cuộc tuyển chọn sắp tiếp cận kết thúc, một bang người thần bí đột nhiên xâm nhập.<br><br>“Các ngươi đang làm gì?”<br><br>“Hắc hắc, cho tôn chủ nhà ta đến báo danh nhé.”<br><br>“Bản nhân không tự mình ra mặt, trực tiếp đào thải bị nốc-ao!”<br><br>“Tôn chủ rất nhanh sẽ tới đây, sợ ngươi không tin hắn có tiền, cho nên cố ý trở về bàn Kim Sơn.”<br><br>Đây là một câu chuyện kiếm khách thời đại, Toàn bộ Ngạo Thiên đại lục có tất cả năm quốc gia, dựa theo thực lực các quốc gia trước sau mà gọi tên, phân biệt có Nam Hi quốc, Đông Lăng quốc, Bắc Tương quốc, Tây Mộ quốc cùng một quốc gia ở giữa bốn quốc là Ngạo Thiên quốc. Mỗi quốc gia đều sùng bái võ lực, huyền khí tung hoành Ngạo Thiên đại lục.<br><br>Vân Khê, kiếp trước là gia chủ của một võ đường thế gia, mang trong người tuyệt thế võ học, trong lúc vô tình xuyên qua tới trên người của Đại tiểu thư Vân gia chưa kết hôn đã mang bầu. Mơ hồ, của nặng hơn người, nhàn sự mạc không để ý chính là một cách tự vệ của Vân Khê, một khi có người chạm đến điểm mấu chốt của nàng, thương tổn người nàng để ý, nàng sẽ không từ thủ đoạn, âm ngoan thủ lạc, không chết thì không ngừng! Lời nói ác độc, vô tâm không phế, thầm nghĩ mang theo đứa con ăn uống miễn phí, tiêu dao khoái hoạt cả đời.<br><br>Vân Tiểu Mặc, con của nữ chủ, năm tuổi, thiên tài cục cưng. Hồn nhiên đáng yêu bề ngoài là cách để tự vệ của hắn, người  đối tốt với hắn, hắn vô cùng thân cận, người đối với hắn không tốt, sẽ bị hắn chỉnh e thê thảm. Tất cả lời nói của Mẫu thân, hắn đều tôn sùng như thánh chỉ, quán triệt chấp hành, cho đến khi người cha phúc hắc của hắn xuất hiện......</p> </div>
